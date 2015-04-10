@@ -1,0 +1,1 @@
+# BuddyForms-WC-Vendors-Templates
